@@ -1,1 +1,1 @@
-# padmajatcb.github.io
+Instructions for content-creation: 
